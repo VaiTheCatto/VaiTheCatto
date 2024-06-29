@@ -1,6 +1,6 @@
 - 👋 Yo, I’m VaiTheCatto
 - 👀 I’m interested in gaem, food, funny mods and uhh cats :3 (add cat mod to roblox fr)
-- 🌱 I’m currently learning Mathematics, Science, Social Studies, Information Technology.
+- 🌱 I’m currently learning Mathematics, Physics, Chemistry, Computer Science, English and French
 - e
 - Gamering
 <!---
